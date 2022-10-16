@@ -1,1 +1,0 @@
-# ALPRO_Pengaplikasian_Fungsi
